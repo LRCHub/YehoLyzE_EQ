@@ -1,4 +1,4 @@
-# Goose house – 光るなら
+# Goose house – 光るなら - Hikarunara
 
 > **歌詞登録ステータス：同期歌詞あり**
 
